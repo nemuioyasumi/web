@@ -7,3 +7,5 @@
 [MGNT4010 Slides](https://docs.google.com/presentation/d/1uenGc2hu4Atqa5VxxTOFPsfsT1-waXP_5Gw4DwnsXp4/edit?usp=sharing)
 
 [4001 Slides](https://mycuhk-my.sharepoint.com/:p:/g/personal/1155175000_link_cuhk_edu_hk/IQAwmYMRflOER4dePJ-Hj4hyAY4oBQ9fOMLCoJj609z8BqY?e=ZNFNe2)
+
+[4242](https://drive.google.com/drive/folders/1wjR1V3zP6Nz9wkRelGtmkmOkOLog6THU?usp=sharing)
